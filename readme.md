@@ -1,1 +1,1 @@
-https://app.diagrams.net/#G1xppZHziVs7j8cCdzPq1e1GCnwj_C7avL
+https://www.figma.com/file/sQuUn7DjMyhVnvFdb2ShGO/кафе?node-id=0%3A1&t=o1NgYErEeRNLGeYg-0
